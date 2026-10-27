@@ -1,0 +1,2 @@
+# Todos-unidos-por-la-literatura-y-la-tradici-n-oral
+Actividad diferente y dinámica, que busca dar a conocer y reconocer la importancia de la literatura prehispánica, se da a conocer estilo, características e importancia se espera  valorar la riqueza de esta, reconociendo las diferencias, también las  semejanzas de los géneros que encontramos en esta literatura con relación a la literatura actual.
